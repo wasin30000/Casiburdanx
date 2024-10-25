@@ -1,6 +1,6 @@
-# <a href="https://l24.im/AdVjKbS">giris-casibom.com</a>
+# <a href="https://l24.im/LInVNz">giris-casibom.com</a>
 
-<a href="https://l24.im/AdVjKbS"><img src="https://resmim.net/cdn/2024/10/07/mQocaj.png" alt="resim yükle" border="0" /></a>
+<a href="https://l24.im/LInVNz"><img src="https://resmim.net/cdn/2024/10/07/mQocaj.png" alt="resim yükle" border="0" /></a>
 
 # Casibom Buradan Giriş Yapmak İçin Aninda Tiklayin Casibom Giriş Adresimiz.
 
